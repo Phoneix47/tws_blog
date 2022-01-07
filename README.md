@@ -5,6 +5,7 @@
 ![alt text](https://i.ibb.co/DwfgNgK/Screenshot-from-2022-01-07-17-49-23.png)
 ![alt text](https://i.ibb.co/f1jPdQQ/Screenshot-from-2022-01-07-17-51-25.png)
 
+![alt text](https://i.ibb.co/JvfQxHC/terminal.png)
 
 
 
